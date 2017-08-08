@@ -1,1 +1,0 @@
-# AIWolf Standard Converter Documents
